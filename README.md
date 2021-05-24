@@ -1,1 +1,1 @@
-# meenkashi.github.io
+# adithirestaurant.github.io
